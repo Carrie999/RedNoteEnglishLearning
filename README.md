@@ -6,6 +6,7 @@
 - [美国 长发男](https://www.xiaohongshu.com/user/profile/6785c6c9000000000403e058)
 - [美国 外交老师](https://www.xiaohongshu.com/user/profile/5bc9f5f4636c170001a34ebc)
 - [加州花园 农场主](https://www.xiaohongshu.com/user/profile/6786d7a3000000000801831e)
+- [加拿大](https://www.xiaohongshu.com/user/profile/67845a4c000000000803fe82)
 
 
 
