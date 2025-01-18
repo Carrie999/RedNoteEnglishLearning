@@ -7,3 +7,12 @@
 - [美国 外交老师](https://www.xiaohongshu.com/user/profile/5bc9f5f4636c170001a34ebc)
 - []()
 
+
+
+## 英语歌手
+- [来自佛罗里达的民谣/乡村歌手](https://www.xiaohongshu.com/user/profile/6786aef9000000000801deed)
+- [民间音乐](https://www.xiaohongshu.com/user/profile/6785c8b0000000000801e114)
+- [蒙大拿州的民间乐队](https://www.xiaohongshu.com/user/profile/67853159000000000801b3c0)
+- [德国歌手 超级好听](https://www.xiaohongshu.com/user/profile/678651ed000000000801a21a) 
+
+
