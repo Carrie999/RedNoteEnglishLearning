@@ -7,7 +7,7 @@
 - [美国 外交老师](https://www.xiaohongshu.com/user/profile/5bc9f5f4636c170001a34ebc)
 - [加州花园 农场主](https://www.xiaohongshu.com/user/profile/6786d7a3000000000801831e)
 - [加拿大](https://www.xiaohongshu.com/user/profile/67845a4c000000000803fe82)
-- [美国](https://www.xiaohongshu.com/user/profile/6783e106000000000801f7b8)
+- [美国-女孩](https://www.xiaohongshu.com/user/profile/6783e106000000000801f7b8)
 
 
 
